@@ -1,6 +1,6 @@
 # OMV Petrom (BVB: SNP) – Equity Research
 30.08.2026  
-Robert-Florian Barbu | Analist independent
+Autor: Robert-Florian Barbu | Analist independent
 
 ## Main Findings
 
